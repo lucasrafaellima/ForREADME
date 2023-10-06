@@ -2,7 +2,7 @@
 
 ## 📰Situação atual:
 
-- Acadêmico em Sistemas de informação
+- Acadêmico em Sistemas de Informação
 
 ## 📖Experiências:
 
